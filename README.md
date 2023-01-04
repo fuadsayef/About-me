@@ -6,4 +6,4 @@
 ## You can contact me
 **Instagram**: https://www.instagram.com/fuadsayef/ \
 **Gmail**: *isayevfuad10@gmail.com* \
-**Whatssap**: *0705361952*
+**Whatssap**: *+994 705361952*
